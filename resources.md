@@ -2,10 +2,13 @@ Science - Common knowledge
 * https://www.youtube.com/@bigthink
 
 * https://www.youtube.com/@besmart/featured
-
+* https://www.youtube.com/watch?v=T-SQufsNq60&t=115s[Hormone Hacking: How to engineer your quality of life]
+[Ep 66, Best Of: Lessons from Neuroscientist Andrew Huberman to Help You Hack your Speaking Anxiety]
+* https://www.youtube.com/watch?v=JRzeJNFlYAc
 
 [general]
 * https://www.youtube.com/watch?v=FGvir8M-tC0
+* https://www.youtube.com/watch?v=X8CD2QEYo6Q&t=2120s
 
 Asian treding:
 - https://www.youtube.com/@fungbros

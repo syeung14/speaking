@@ -72,7 +72,7 @@ then and then it's going to make all the
 agriculture into soy plants because
 China wants more soy beans and then and
 then we'll become soy Boys in it and
-it's going to increase the `estrogen` in
+it's going to increase the `estrogen` in    [testosterone]
 all our men and then they can't fight
 Wars,  It's a `ploy`[tactics], someone said yeah man I
 can't believe they needed even those
