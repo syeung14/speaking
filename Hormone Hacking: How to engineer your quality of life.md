@@ -12,7 +12,7 @@ And this happens when you're obese.
 Because even if you're just carrying that extra 20 pounds, your body will use the fat
 cells to convert testosterone into estrogen.
 And this is why, for most of my life, but not now, I was really self-conscious about my `man boobs`.
-And they would just get all `perky` when I was a little bit `puffy`, because my testosterone
+And they would just get all `perky`(keenly alert) when I was a little bit `puffy`(swollen in size), because my testosterone
 was very quickly turning into estrogen.
 So what do you do about things like that?
 Should you be on hormone `therapy` as you age?
@@ -33,10 +33,9 @@ You want the average hormone levels of a 30-year-old if you're 60, and you want 
 So what you do is, you `supplement` with testosterone.
 Now, you could say, well, that was advice for men.
 No, it's advice for men and women.
-Because guess what happens when women have enough testosterone.
-It's way less than for men.
-No, they don't get a deep voice and a `goatee`.
-What they get is a `zest for life`.        [zest: keen enjoyment]
+Because guess what happens when women have enough testosterone. 
+It's way less than for men. No, they don't get a deep voice and a `goatee`.
+What they get is a `zest for life`.        [zest: keen enjoyment/an enjoyably exciting quality]
 They start liking sex more than they did before.
 But they show up at work and they like it.
 They show up for their families better.
@@ -63,18 +62,19 @@ It can lower your risk of `cardiovascular` disease.
 And let's cut over to estrogen.
 We've all heard, oh, estrogen replacement causes cancer, so let's quit doing it.
 Guess what estrogen they used for those studies.
-They used an artificial form of estrogen that is not the same as what humans make that was
-collected from `horse urine` from pregnant `mares`.
+They used `an artificial` form of estrogen that is not the same as what humans make 
+that was collected from `horse urine` from pregnant `mares`.
 That's actually how they did this.
-They had little horses walking around with little cups underneath them.
+They had little horses walking around with little `cups underneath` them.
 And they collected that, purified it, and sold it to you.
-And it didn't do what bioidentical hormones do, because you can't patent bioidentical
-hormones, since they're already in your body.
+And it didn't do what bioidentical hormones do, because you can't patent bioidentical hormones, 
+since they're already in your body. 
 What that means is that, when you work with a functional medicine doctor, and they measure
-your levels of estrogen, and you use topical estrogen replacement-- this is a cream you
-put in various parts on the body, or injections, or `pellets`-- there's different ways to get
-it-- your risk of all sorts of diseases go down.
-And if you're dealing with pre and `perimenopause`, it can really change the quality of your life
+your levels of estrogen, and you use topical estrogen replacement-- 
+this is a cream you put in various parts on the body, or injections, or `pellets`-- 
+there's different ways to get it-- 
+your risk of all sorts of diseases go down.
+And if you're dealing with pre and `perimenopause`(停经期前症候), it can really change the quality of your life
 in a very, very meaningful way.
 So, we are walking around with people suffering, tired, emotional ups and downs, all sorts
 of problems because we're afraid that a bioidentical compound your body makes will have the same
