@@ -30,20 +30,15 @@ notifications, and let's get into the first clip.
 
 hello everyone this is kaiva, when I
 travel abroad, one of the most frequent
-questions that I receive is are you
-Japanese?
-so today I'll tell you the
-characteristics of Japanese, this is a
+questions that I receive is are you Japanese?
+so today I'll tell you the characteristics of Japanese, this is a
 method to recognize Japanese at a glance.
 so this was when a flight attendant spilled drinks on Korean, Japanese and
 Chinese passengers. Korean passenger loses his temper, he accepts apology and
 a moment later, he apologizes to the flight attendant, saying I'm sorry for
-getting angry at you just a while ago,
-and it's over, in case of Japanese
-passenger, they smile and say oh no
-problem, oh no worries, please smile
-and a week later, a complaint letter is sent to the
-airline company. 
+getting angry at you just a while ago, and it's over, in case of Japanese
+passenger, they smile and say oh no problem, oh no worries, please smile
+and a week later, a complaint letter is sent to the airline company. 
 Chinese passenger, they get furious and yell, they murmur []
 their complaints in loud voice and in Small Voice they ask for their first class seat.
 they take the first class to their destination. 
