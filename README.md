@@ -15,6 +15,16 @@ Why you should want to suffer | Paul Bloom
 
 https://www.youtube.com/@stanfordgsb/videos
 
+[Wired]
+https://www.youtube.com/watch?v=VAB9cUlGrRo
+
+Therapist Answers Relationship Questions From Twitter | Tech Support | WIRED
+https://www.youtube.com/watch?v=UPs_UiIUGu8
+
+[GQ Taiwan]
+Body Language Expert Explains How to Show Confidence
+https://www.youtube.com/watch?v=WN_EFeKioWI
+
 [Grunge]**
 - [The Rarest Dog Breed In The World](https://www.youtube.com/watch?v=bjlKgT3pwUk&list=PLhttcwQhqVrXJJhrwesKtKh8kvgUXt6AB&index=1&t=25s)
 [The Untold Truth Of Valhalla](https://www.youtube.com/watch?v=m0W9qM-2whs&list=PLbvw8GqH5MeniwI5huldFI7J8-Hc4s_Z-&index=25)
@@ -80,3 +90,6 @@ How To Approach Women You Don't Know (SIMPLE + EFFECTIVE)
 
 2 Ways To Approach A Girl At A Coffee Shop (use THESE lines)
 - https://www.youtube.com/watch?v=19-0JQAqZFY&ab_channel=TrippAdvice
+
+Women Don’t Care About Your Struggles
+- https://www.youtube.com/watch?v=FG2Ac2XRxDU

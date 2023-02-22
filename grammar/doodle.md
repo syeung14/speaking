@@ -91,3 +91,10 @@ boost efficiency / productivity
 
 be inundate with sth.
 more than anything...
+
+
+exhaust / fuel / give rist to / 
+hinder / impede / obstruct / impose 
+/erode / exacerbate / aggravate
+disturb / deplete / degrade / corrupt 
+cause / cherish
