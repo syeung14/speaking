@@ -1,6 +1,8 @@
+https://www.youtube.com/watch?v=qTcn9evL644&t=99s
+
 - The idea that money can't buy happiness is a load of "beep."
 - Money will make you happier.
-There are certain expenditures that have a direct link
+There are certain `expenditures` that have a direct link
 to our increased happiness, and it's ones
 that are spent on things that enhance our experiences.
 And so, understanding how to use money to enhance
@@ -8,7 +10,7 @@ your happiness is very, very important.
 - My partner and I knew that we wanted to leave
 our hometown of Columbia, South Carolina.
 So we decided to sell 90% of our things and hit the road—
-and really stack up the experiences
+and really  `stack up` the experiences
 instead of buying more possessions as we lived
 our lives the way that we want to live them.
 - If you want to use money to become happier,
@@ -22,12 +24,14 @@ There are goals that we have.
 There are things we want to see in our life
 that money can help us achieve.
 - Can the way we choose to spend or not spend
-our money unlock the greatest happiness in our lives?
+our money unlock `the greatest happiness` in our lives?
 This is "Your Brain on Money."
+
 - Experiences, take one, marker.
+
 - So the saying about money
 and happiness, among scientists,
-is somewhat cynical but true— is that if money doesn't
+is somewhat `cynical` but true— is that if money doesn't
 buy you happiness, you're spending it the wrong way.
 It could buy you happiness.
 It's just that right now we're spending it
@@ -35,14 +39,14 @@ in a way that isn't focused on happiness.
 It's focused on things that we think
 are gonna make us happy, and are not.
 - Handling money creates an experience
-of euphoria that can last for hours.
+of `euphoria` that can last for hours.
 And we get stuck in this mindset of consumption;
 it's one of the ways that we're wired
 to do things wrong about money.
-- Spending money on gadgets and possessions
-can give us an immediate sense of gratification,
+- Spending money on `gadgets and possessions`
+can give us `an immediate sense of gratification`,
 but doesn't usually lead to long-term happiness.
-Why do we feel compelled to do it?
+Why do we `feel compelled` to do it?
 - In our brain, we have mechanisms
 that operate very short-term.
 You enjoy it for the moment,
@@ -51,11 +55,11 @@ and then you go back to reality.
 You have that initial burst of joy.
 This is so cool and so exciting.
 And then pretty soon you forget about it, and it breaks.
-That shiny new object will lose its luster,
+That shiny new object `will lose its luster`,
 and you will not have a long-lasting
 happiness associated with that.
 And as a matter of fact, it could
-backfire and make you feel worse.
+`backfire and make you feel worse`.
 - You enjoy it for the moment,
 but then because that's all it is,
 is a short-lived thing, it basically fades away.
@@ -73,8 +77,8 @@ that you can tell as a story again and again,
 you get to enjoy it every time you load the memory
 and share it and store it and share it,
 and store it and share it many, many times.
-It's a long-term investment
-in an experience.
+It's a long-term investment in an experience.
+
 - So every time you connect back to that,
 you experience a little bit of the happiness.
 Versus a purchase— you buy something,
@@ -118,7 +122,7 @@ and some of our possessions, like owning a home,
 can be important for our long-term
 financial health and happiness.
 But how do we get the most happiness
-out of our discretionary spending?
+out of our `discretionary spending`?
 - From an early age, I learned that life
 is about the stories that we share.
 And there are very few stories that you're gonna be able
@@ -143,7 +147,7 @@ whether it's an experience or whether it's a thing,
 actually something that I can afford?’
 So for those of you who are saying,
 "Great, I wanna save up my money
-and do an experiential trip
+and do an `experiential trip`
 with my family and my loved ones,
 but I'm not able to right now,"
 the good news is, right now, there might be a creative way

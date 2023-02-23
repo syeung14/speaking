@@ -28,8 +28,7 @@ interesting and fun, so make sure you
 like, subscribe, turn on your
 notifications, and let's get into the first clip.
 
-hello everyone this is kaiva, when I
-travel abroad, one of the most frequent
+hello everyone this is kaiva, when I travel abroad, one of the most frequent
 questions that I receive is are you Japanese?
 so today I'll tell you the characteristics of Japanese, this is a
 method to recognize Japanese at a glance.

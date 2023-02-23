@@ -97,4 +97,4 @@ exhaust / fuel / give rist to /
 hinder / impede / obstruct / impose 
 /erode / exacerbate / aggravate
 disturb / deplete / degrade / corrupt 
-cause / cherish
+cause / cherish / value / treasure / upgrade

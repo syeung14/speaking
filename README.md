@@ -93,3 +93,11 @@ How To Approach Women You Don't Know (SIMPLE + EFFECTIVE)
 
 Women Don’t Care About Your Struggles
 - https://www.youtube.com/watch?v=FG2Ac2XRxDU
+
+
+The Best Way To Learn How To Approach Women
+(https://www.youtube.com/watch?v=Y9PqcT-_fzY)
+- start with simple - ask for good coffee shop
+
+Why Complimenting Women Doesn't Work
+- https://www.youtube.com/watch?v=Om3paG-CwfU
