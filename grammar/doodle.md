@@ -98,3 +98,61 @@ hinder / impede / obstruct / impose
 /erode / exacerbate / aggravate
 disturb / deplete / degrade / corrupt 
 cause / cherish / value / treasure / upgrade
+
+Supporting children with memtors and after-school programs will gie these children opportunities and guidance
+that they might not recive otherwise.a
+
+[Bedford - Stepping stones A guided approach to writing sentences ....]
+- Ch11 - simple sentence
+  *
+- Ch12  
+  * Compound: 
+    - commma and a coordinating conjunction
+    - with a semicolon
+- Ch13
+  * Coordinating conjunctions (and/but/so/or (nor, yet, for))
+    * Our team won, so we celebrated
+    * Since our team won, we celebrated
+  * subordinating conjunctions
+    after / as / before/when/while/although/even though/because, since
+  * Transitional exressions:
+    - futhermore / in addition / moreover
+      if,evenif, unless, until/ on the other hand
+- Ch14 more complex sentences
+  * Descriptive Clause (they appear directly after the word tehy describe)
+    * The team that won celebrated
+  * that 
+    *  The pipe that broken was frozen.
+  * which 
+    * the cookbook, which was a birtyday gift, has many color photos.
+  * who /whom
+    * the patient who fainted fell down.
+    * the girl whom Jim invited could not come.
+                    ^^^ another noun or pronoun
+  * where 
+    * the club where we danced closed down.
+  * when
+    * The summer when I graduated was fantastic.
+  * that / whom could be left out
+    * noun + verb
+  * `that or which` - necessary or optional information
+  * `where or when `
+- Ch15 - modifying phrases
+  * Howling at the moon, my dog wakes up all the neighbors.
+  * the Criminal entered the courtroom. He smiled at the jury.
+    * Entering the courtroom, the criminal smiled at the jury.
+  * Running for the bus, Dominic tripped on a garden hose. (ongoing)
+  * To get to work on time, I catch the six o'clock again. (desired action)
+  * Injured during the tryouts, the gymnast could not compete in the Olympics. (condition)
+  * Lost in the amusement park, the child started to cry. 
+  * when the modifiers are in the begining of a sentence: 
+    * The subject of the sentence must come immediately after the comma.
+    * This subject must connect with the action in the modiﬁer.
+  * 
+
+[Detective writing]
+- the following: 
+- one (the only one)"
+- thsi is the end. the is another one.
+- "this is from a double quotes, 'inside double quote'"
+- 

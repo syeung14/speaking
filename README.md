@@ -41,6 +41,14 @@ Psychological Tricks To Be Effortlessly Confident & CHARISMATIC | Vanessa Van Ed
 * https://www.youtube.com/watch?v=X8CD2QEYo6Q&t=2120s
 * ["Western Values" Explained](https://www.youtube.com/watch?v=7DUT4aCkeRA)
 
+[LogicallyAnswered]
+https://www.youtube.com/@LogicallyAnswered
+
+[WatchMojo.com]
+[Top 10 Cocktails for Men]
+- https://www.youtube.com/watch?v=B6EA9pPRrv4
+
+
 [Mr. Beat]
 - https://www.youtube.com/watch?v=tynCve2yr84
 
@@ -48,6 +56,14 @@ Psychological Tricks To Be Effortlessly Confident & CHARISMATIC | Vanessa Van Ed
 
 [travel]
 https://www.youtube.com/watch?v=tynCve2yr84
+Malls at CA
+https://www.youtube.com/watch?v=XhvecfUire4&t=1431s
+- Third Street Promenade
+Boston USA. The Most European City in the US. Sights, People and Food
+- https://www.youtube.com/watch?v=VmCDvQecjA8
+New York USA. The largest city in the US. People, Sights and more
+- https://www.youtube.com/watch?v=dxsawQOQ9lU
+
 
 [Asian treding]
 - https://www.youtube.com/@fungbros
@@ -62,6 +78,9 @@ https://www.youtube.com/watch?v=NFBPt7MdWEs
 - https://www.youtube.com/@JeremyJahns 
 - https://www.youtube.com/watch?v=n74ZpnPY_yI
 - https://www.youtube.com/@CinemaSins/videos
+
+[Movie Recaps]
+- 
 
 [The Making of Mad Max: Fury Road was a Sh*t Show]
 https://www.youtube.com/watch?v=dB1CoVl1kfw&list=PLhttcwQhqVrXJJhrwesKtKh8kvgUXt6AB&index=3&t=717s
@@ -81,10 +100,14 @@ Coding
 - https://www.youtube.com/watch?v=bhhMJSKNCQY
 
 
-Politics
+[Politics]
 - https://www.youtube.com/watch?v=qEu0oRajJxE
 
-[relationship]
+[life]
+https://www.youtube.com/@theschooloflifetv
+[Self Compassion](https://www.youtube.com/watch?v=-kfUE41-JFw&t=68s)
+
+[Relationship]
 How To Approach Women You Don't Know (SIMPLE + EFFECTIVE)
 - https://www.youtube.com/watch?v=kYMeGtJ5CMc&ab_channel=TrippAdvice
 
@@ -94,10 +117,18 @@ How To Approach Women You Don't Know (SIMPLE + EFFECTIVE)
 Women Don’t Care About Your Struggles
 - https://www.youtube.com/watch?v=FG2Ac2XRxDU
 
-
 The Best Way To Learn How To Approach Women
 (https://www.youtube.com/watch?v=Y9PqcT-_fzY)
 - start with simple - ask for good coffee shop
 
 Why Complimenting Women Doesn't Work
 - https://www.youtube.com/watch?v=Om3paG-CwfU
+
+[Comedy]
+- Ronny Chieng Is Baffled By Certain States' Mottos | Netflix Is A Joke
+    - Motto (model)
+  (https://www.youtube.com/watch?v=o62WBI0pBDY)
+  * live free or die (NH)
+  * friendship (texas)
+  * 
+- 
