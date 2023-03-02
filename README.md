@@ -33,7 +33,6 @@ The Real Reason America Doesn't Have High-Speed Rail
 The Rarest Dog Breed In The World
 https://www.youtube.com/watch?v=bjlKgT3pwUk&list=PLhttcwQhqVrXJJhrwesKtKh8kvgUXt6AB&index=5&ab_channel=Grunge
 
-
 [general]
 How I made my first $100k on Youtube (as a small creator)
 * https://www.youtube.com/watch?v=FGvir8M-tC0
@@ -49,30 +48,25 @@ https://www.youtube.com/@LogicallyAnswered
 - https://www.youtube.com/watch?v=B6EA9pPRrv4
 
 
-[Mr. Beat]
-- https://www.youtube.com/watch?v=tynCve2yr84
-
 ###
 
 [travel]
+[Mr. Beat]
 https://www.youtube.com/watch?v=tynCve2yr84
-Malls at CA
+
 https://www.youtube.com/watch?v=XhvecfUire4&t=1431s
 - Third Street Promenade
+Malls at CA
+
 Boston USA. The Most European City in the US. Sights, People and Food
 - https://www.youtube.com/watch?v=VmCDvQecjA8
 New York USA. The largest city in the US. People, Sights and more
 - https://www.youtube.com/watch?v=dxsawQOQ9lU
 
-
 [Asian treding]
 - https://www.youtube.com/@fungbros
 
-[Food - Mashed]
-https://www.youtube.com/@MashedFood
-Watch This Before You Eat Another Taco Bell Quesadilla
-- https://www.youtube.com/watch?v=wKK-HoG9C_w&list=PLhttcwQhqVrXJJhrwesKtKh8kvgUXt6AB&index=2&t=193s
-https://www.youtube.com/watch?v=NFBPt7MdWEs
+
 
 [Movie review]
 - https://www.youtube.com/@JeremyJahns 
@@ -80,7 +74,7 @@ https://www.youtube.com/watch?v=NFBPt7MdWEs
 - https://www.youtube.com/@CinemaSins/videos
 
 [Movie Recaps]
-- 
+https://www.youtube.com/watch?v=PkHPaAPAQu4&list=PLhttcwQhqVrXJJhrwesKtKh8kvgUXt6AB&index=1
 
 [The Making of Mad Max: Fury Road was a Sh*t Show]
 https://www.youtube.com/watch?v=dB1CoVl1kfw&list=PLhttcwQhqVrXJJhrwesKtKh8kvgUXt6AB&index=3&t=717s
@@ -90,7 +84,7 @@ https://www.youtube.com/watch?v=dB1CoVl1kfw&list=PLhttcwQhqVrXJJhrwesKtKh8kvgUXt
 - https://www.youtube.com/watch?v=dhxvXiwE8rY [Gaming on STARLINK!!]
     https://www.youtube.com/watch?v=Fh1a2K9ZgNA&t=170s
 [GCP]
-- https://www.youtube.com/watch?v=RBn-8cG_i9s 
+- [Deploy Apigee environment and org configurations using Apigee Maven plugin and Cloud Build]https://www.youtube.com/watch?v=RBn-8cG_i9s
 
 This Company Is Putting FAANG To Shame
 - https://www.youtube.com/watch?v=tXfWTTQha54&list=PLhttcwQhqVrXJJhrwesKtKh8kvgUXt6AB&index=1&t=123s&ab_channel=LogicallyAnswered
@@ -98,14 +92,6 @@ This Company Is Putting FAANG To Shame
 Coding
 - https://www.youtube.com/watch?v=K1iu1kXkVoA&t=3s
 - https://www.youtube.com/watch?v=bhhMJSKNCQY
-
-
-[Politics]
-- https://www.youtube.com/watch?v=qEu0oRajJxE
-
-[life]
-https://www.youtube.com/@theschooloflifetv
-[Self Compassion](https://www.youtube.com/watch?v=-kfUE41-JFw&t=68s)
 
 [Relationship]
 How To Approach Women You Don't Know (SIMPLE + EFFECTIVE)
@@ -132,3 +118,7 @@ Why Complimenting Women Doesn't Work
   * friendship (texas)
   * 
 - 
+
+
+
+https://drive.corp.amazon.com/folders/Morocco/Lunch%20and%20Learn%20Recordings/2023%20LNL

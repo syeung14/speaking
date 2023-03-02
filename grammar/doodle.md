@@ -156,3 +156,5 @@ that they might not recive otherwise.a
 - thsi is the end. the is another one.
 - "this is from a double quotes, 'inside double quote'"
 - 
+
+EventAccess needs to know which accounts have which datasource packages started so that it knows which sources/account notifications to create bundles for.
