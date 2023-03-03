@@ -11,9 +11,6 @@ Watch This Before You Eat Another Taco Bell Quesadilla
 https://www.youtube.com/watch?v=NFBPt7MdWEs
 [This Is The Secret To Ruth's Chris Steak House's Delicious Steak](https://www.youtube.com/watch?v=DDZ_jxWVo2w)
 
-
-
-
 [Drink]
 (https://www.youtube.com/watch?v=wKjXoSckzbQ&list=PLPMzwYshqWNOjhLrFLYYwhERUwZVPS67z)
 

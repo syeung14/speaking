@@ -43,30 +43,9 @@ Psychological Tricks To Be Effortlessly Confident & CHARISMATIC | Vanessa Van Ed
 [LogicallyAnswered]
 https://www.youtube.com/@LogicallyAnswered
 
-[WatchMojo.com]
-[Top 10 Cocktails for Men]
-- https://www.youtube.com/watch?v=B6EA9pPRrv4
-
-
 ###
-
-[travel]
-[Mr. Beat]
-https://www.youtube.com/watch?v=tynCve2yr84
-
-https://www.youtube.com/watch?v=XhvecfUire4&t=1431s
-- Third Street Promenade
-Malls at CA
-
-Boston USA. The Most European City in the US. Sights, People and Food
-- https://www.youtube.com/watch?v=VmCDvQecjA8
-New York USA. The largest city in the US. People, Sights and more
-- https://www.youtube.com/watch?v=dxsawQOQ9lU
-
 [Asian treding]
 - https://www.youtube.com/@fungbros
-
-
 
 [Movie review]
 - https://www.youtube.com/@JeremyJahns 

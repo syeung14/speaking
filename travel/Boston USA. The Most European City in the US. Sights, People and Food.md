@@ -1,15 +1,15 @@
+https://www.youtube.com/watch?v=VmCDvQecjA8
+
 hey guys and welcome to cool vision in
 this video we'll travel to boston
-welcome to boston guys let's talk about
-boston
+welcome to boston guys let's talk about boston
+
 boston is the capital of the state of
 massachusetts with a population of 675
 000 people and 4.8 million people living
 in the greater boston metropolitan area
-boston is best known for its rich
-history seafood top university baseball
-the boston marathon and is probably one
-of the most european looking cities in
+boston is best known for its rich history, seafood, top university, baseball
+the boston marathon and is probably one of the most european looking cities in
 america let's start with its history
 [Music]
 the city was founded in 1630 by the
@@ -21,8 +21,7 @@ center of the new england region in the
 succession of acts aimed at taxing the
 colonists but american colonists
 subjected to being taxed by the british
-parliament in which they had no direct
-representation
+parliament in which they had no direct representation
 which led to events like the boston
 massacre when the british troops shot
 into a crowd and killed five people
@@ -37,6 +36,7 @@ harshly and the american revolution
 began the patriots fought back
 eventually forcing the british to
 evacuate boston on march 17 1776
+
 today the greater boston metropolitan
 area has the sixth largest economy in
 the country with a gross regional
@@ -44,25 +44,23 @@ product of 363 billion dollars the
 city's economy centered on education
 finance medicine and high technology
 boston has a thriving jobs market
-top-notch universities and access to
+`top-notch universities` and access to
 venture capital make it a global player
 in innovation and entrepreneurship
 amazon microsoft and google and other
 big names have offices here
-general electric fidelity investments
-liberty mutual gillette new balance puma
+`general electric` `fidelity investments`
+`liberty mutual` gillette new balance puma
 and reebok all have headquarters here
-did you know that dunkin donuts was
-founded in boston in 1950 well
-technically 20 minutes away from boston
-in quincy massachusetts
-city is a major seaport along the east
+did you know that dunkin donuts was founded in boston in 1950 
+well technically 20 minutes away from boston
+in quincy massachusetts city is a major seaport along the east
 coast and the oldest continually
 operated industrial and fishing port in
 the western hemisphere
 boston is a world leader in higher
 education with more than 50 colleges and
-universities including harvard and mit
+universities including harvard and MIT
 harvard is a private ivy league research
 university located across the charles
 river in cambridge there are thirty
@@ -71,30 +69,30 @@ about five percent of applicants are
 accepted into the school
 it was founded in 1636 which makes it
 the oldest institution of higher
-education in the us on its alumni list
+education in the US. on its alumni list
 you will find eight american presidents
 75 nobel prize winners and also 29
 billionaires according to the forbes
-list isn't that impressive the
+list. isn't that impressive? the
 massachusetts institute of technology is
 another private research university
 established in 1861. it originated in
 boston and was first known as boston
-tech it's known for its programs in
+tech, it's known for its programs in
 engineering and the physical sciences
 right across the river from downtown
-boston you see
-mit over the years it's played a key
+boston, you see
+MIT over the years, it's played a key
 role in the development of modern
 sciences and technology for every 100
 people applying only 7.3 will be
-accepted which makes it a very
-competitive place some of the world's
+accepted, which makes it a very
+competitive place, some of the world's
 greatest inventions have been created by
-their graduates like space war the first
+their graduates like space war, the first
 computer game the first portable fax
-machine gps and voice recognition
-technology the mit alumni have founded
+machine GPS and voice recognition
+technology the MIT alumni have founded
 many notable companies like boston
 dynamics a robotics design company that
 makes robots they can run jump and do a
@@ -110,27 +108,25 @@ different parts of the city let's start
 with downtown it's the location of many
 corporate headquarters restaurants
 coffee shops and parks a lot of new
-condos and lofts have been constructed
+`condos and lofts` have been constructed
 recently which brought new residents and
-businesses but the biggest
-transformation was the project known as
-the big dig look we're entering a tunnel
+businesses but the biggest transformation was the project known as
+the big dig, look we're entering a tunnel
 and we're going to be driving under the
-city this project removed the elevated
-highways put them on the ground and
+city this project `removed the elevated highways` put them on the ground and
 replaced them with green spaces this is
 what it used to be and this is what it
-is now so much better this was one of
+is now so much better, this was one of
 the nation's most expensive highway
-projects with a price tag of 14.8
-billion dollars
+projects with a price tag of 14.8 billion dollars
+
 downtown is nice and clean and it
 doesn't have a lot of homeless people
 there's some but not as many as i've
 seen in other american cities
 now let's take a look at beacon hill
 it's one of the oldest historic
-districts in america federal style row
+districts in america, federal style row
 houses and cobblestone streets that are
 illuminated with gas street lights and
 it's within walking distance of the

@@ -66,7 +66,7 @@ But people do more than that.
 People often choose to suffer,
 and they do so in ways that go from small to the big.
 So the small, something like hot chilies,
-working your way through a crossword puzzle, saunas,
+working your way through a `crossword puzzle`, saunas,
 hot baths, scary movies, massage pain, running till it hurts.
 `Moving it up a bit`, some people willingly engage in projects
 that involve a lot of suffering and difficulty.
@@ -94,8 +94,8 @@ that were high status, nor were they the jobs that paid the most.
 They were jobs like being an educator,
 a medical professional, in the military,
 that involve struggle and difficulty.
-So we see in our lives a whole spectrum of suffering
-from things so mild, they barely deserve the name,
+So we see in our lives `a whole spectrum of suffering`
+from things so mild, they `barely deserve the name`,
 you know eating some spicy food,
 or working your way through a crossword puzzle.
 No reward, nothing.
