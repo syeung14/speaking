@@ -8,6 +8,7 @@ like a good cocktail.
 Welcome to WatchMojo.com
 and today, we're counting down our picks
 for the top 10 drinks men like.
+
 "Alright, gentlemen. It's refill time here."
 "You might try some of them local drinks, you know?
 A Cuba Libre, pina colada..."
@@ -17,9 +18,12 @@ around the world, that probably appeal more to
 men than they do women.
 But if you're a lady who loves these drinks,
 that's great, too.
+
 ♫ I'm feelin' supersonic ♫
 ♫ Gimme gin and tonic ♫
 "I ordered us a couple of Bacardi Mojitos."
+
+No.10
 "Mojito...es un tambien."
 Although there are several variations of this classic drink,
 the most notable being the Brazilian Caipirinha,
@@ -89,6 +93,8 @@ rather than the usual white.
 -Rum and coke.-
 -How about a lime in that?-
 "I'm vaguely offended by that."
+
+7.: Tom Collins
 "OK, you don't smash the cherry on that."
 "Just plop it in at the end."
 "Try to keep it in the top of the glass."
@@ -111,7 +117,8 @@ historians figure that accounts for the drink's name change.
 "It's from our trees here. That's the secret."
 "He was squeezing all afternoon." "Yeah."
 "What's your drink, Dude?"
-"A White Russian, thanks."
+
+6. "A White Russian, thanks."
 What do you get when you mix vodka, cream, and a coffee liqueur?
 None other than this sweet and creamy cocktail.
 Ironically, the drink was not created in Russia.
@@ -130,6 +137,8 @@ of the cult hit movie, The Big Lebowski.
 (offscreen) "Do you want a drink?"
 "Yeah, sure. White Russian?"
 (offscreen) "The bar's over there."
+
+No.5: Bloody Mary / Caesar
 "Oh! That's so good! Oh!"
 (offscreen) "And there is vodka in it, but not that much."
 The main difference between these two drinks
@@ -152,6 +161,8 @@ produces less stomach irritation than an aspirin alone.
 "A-ha!"
 (exhales)
 "Sir?"
+
+No.4 Old Fashioned
 "Who says this boy can't fly this old plane?"
 "There you go."
 "Now I'm gonna make us an Old Fashioned
@@ -170,6 +181,8 @@ can be the spirit of choice here.
 Just whatever you do,
 don't mix one for yourself if you happen to be flying an airplane.
 "What can happen to an Old Fashioned, alright?"
+
+No.3 Jack and coke
 "Gimme a Jack and Coke, please?"
 "Jack and Coke."
 Question: who knew that Coca-Cola and Jack Daniels whiskey
